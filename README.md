@@ -1,6 +1,6 @@
 # possesingV
 
-**Book 1 goodbye scene so fucking good wtf** 
+**Book 1 goodbye scene & ending was so fucking good wtf** 
 
 ---
 
